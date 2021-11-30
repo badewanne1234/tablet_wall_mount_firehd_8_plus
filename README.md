@@ -1,0 +1,1 @@
+# tablet_wall_mount_firehd_8_plus
